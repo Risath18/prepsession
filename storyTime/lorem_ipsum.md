@@ -12,6 +12,3 @@ oonga boonga gorilla cyclops flabby jabby
 
 shabba jabba
 yeetyee
-
-
-
